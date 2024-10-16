@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Eliasagee
 - 👀 I’m interested in ...michael myers
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...how to make maps
+- 💞️ I’m looking to collaborate on ...first person shooters
 - 📫 How to reach me ...Freind me
 - 😄 Pronouns: ...he
 - ⚡ Fun fact: ...i like xenamorphs
